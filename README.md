@@ -1,4 +1,3 @@
-account_head_image.jpg
 - 👋 Hi, I’m @EMMANUEL ANAEDOBE
 - 👀 I’m interested in bounds of logos in cyberspace episteme.
 - 🌱 I’m currently learning cyber in it's entirety
