@@ -1,3 +1,7 @@
+
+
+https://user-images.githubusercontent.com/111023558/222108833-80152fc9-ced7-491d-b79a-8d4562e78a78.mp4
+
 - 👋 Hi, I’m @EMMANUEL ANAEDOBE
 - 👀 I’m interested in bounds of logos in cyberspace episteme.
 - 🌱 I’m currently learning cyber in it's entirety
